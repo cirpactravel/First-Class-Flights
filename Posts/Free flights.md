@@ -1,4 +1,4 @@
-# To fly First class for free , you need to get frquebt flyer miles
+# To fly First class for free , you need to get frquent flyer miles
 There are many ways to get it
 
 Skip to content
